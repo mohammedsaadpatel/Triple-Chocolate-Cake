@@ -17,4 +17,4 @@ You can read more about this next and see my dark chocolate mousse cake, tuxedo 
 
 Vanilla Extract:  Vanilla extract adds flavor.
 
-Hot Coffee or Hot Water:   Hot liquid enhances the cocoa powder’s flavor. It also encourages it to bloom and dissolve appropriately. You’ll notice I don’t use hot liquid in my chocolate cupcakes recipe. That’s because there isn’t the same volume of dry ingredients. With this amount of cake batter, we need a hot liquid to break up the cocoa powder lumps resting in all that flour. If you don’t drink coffee, you can use hot water. For deeper and darker flavor, though, use coffee. (Decaf coffee works!)
+Hot Coffee or Hot Water:   Hot liquid enhances the cocoa powder’s flavor. It also encourages it to bloom and dissolve appropriately. You’ll notice I don’t use hot liquid in my chocolate cupcakes recipe. That’s because there isn’t the same volume of dry ingredients. With this amount of cake batter, we need a hot liquid to break up the cocoa powder lumps resting in all that flour. If you don’t drink coffee, you can use hot water. For deeper and darker flavor, though, use coffee. (Decaf coffee works!) 
