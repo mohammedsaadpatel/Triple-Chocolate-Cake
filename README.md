@@ -3,10 +3,10 @@ This is my favorite homemade chocolate cake recipe.
 With a super moist crumb and fudgy, yet light texture, this chocolate cake recipe will soon be your favorite too.
 
 
-T![triple-chocolate-cake](https://user-images.githubusercontent.com/74590450/131242290-3ecd452e-ae29-4458-9b5b-806532800410.jpg)
+![triple-chocolate-cake](https://user-images.githubusercontent.com/74590450/131242290-3ecd452e-ae29-4458-9b5b-806532800410.jpg)
 
 
-op with chocolate buttercream and chocolate chips for 3x the chocolate flavor. You can also prepare this chocolate layer cake as a sheet cake, too. 
+Top with chocolate buttercream and chocolate chips for 3x the chocolate flavor. You can also prepare this chocolate layer cake as a sheet cake, too. 
 This Chocolate Cake Is:
 Extra moist
 2 layers, but can be made as 3 layers or as a sheet cake
